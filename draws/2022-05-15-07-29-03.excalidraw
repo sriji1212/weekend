@@ -1,0 +1,122 @@
+{
+  "type": "excalidraw",
+  "version": 2,
+  "source": "file://",
+  "elements": [
+    {
+      "id": "HqZXc7KQBgqLLJFO4A1_e",
+      "type": "freedraw",
+      "x": 148.66668701171875,
+      "y": 248.33331298828125,
+      "width": 7.3333740234375,
+      "height": 51.33331298828125,
+      "angle": 0,
+      "strokeColor": "#000000",
+      "backgroundColor": "transparent",
+      "fillStyle": "hachure",
+      "strokeWidth": 1,
+      "strokeStyle": "solid",
+      "roughness": 1,
+      "opacity": 100,
+      "groupIds": [],
+      "strokeSharpness": "round",
+      "seed": 747867114,
+      "version": 16,
+      "versionNonce": 1391454326,
+      "isDeleted": false,
+      "boundElementIds": null,
+      "points": [
+        [
+          0,
+          0
+        ],
+        [
+          2,
+          -4.666656494140625
+        ],
+        [
+          2.66668701171875,
+          -7.33331298828125
+        ],
+        [
+          2.66668701171875,
+          -6.666656494140625
+        ],
+        [
+          -2,
+          4.66668701171875
+        ],
+        [
+          -4.66668701171875,
+          15.333343505859375
+        ],
+        [
+          -4.66668701171875,
+          24
+        ],
+        [
+          -4,
+          30.66668701171875
+        ],
+        [
+          -2,
+          34.66668701171875
+        ],
+        [
+          -2,
+          39.333343505859375
+        ],
+        [
+          -2,
+          43.333343505859375
+        ],
+        [
+          -2.66668701171875,
+          44
+        ],
+        [
+          -4,
+          44
+        ],
+        [
+          -4.66668701171875,
+          42
+        ],
+        [
+          -4.66668701171875,
+          42
+        ]
+      ],
+      "pressures": [],
+      "simulatePressure": true,
+      "lastCommittedPoint": null
+    },
+    {
+      "id": "c1Gz3eJyCshbjxM_hyje2",
+      "type": "rectangle",
+      "x": 136.66668701171875,
+      "y": 211,
+      "width": 115.33331298828125,
+      "height": 96,
+      "angle": 0,
+      "strokeColor": "#000000",
+      "backgroundColor": "transparent",
+      "fillStyle": "hachure",
+      "strokeWidth": 1,
+      "strokeStyle": "solid",
+      "roughness": 1,
+      "opacity": 100,
+      "groupIds": [],
+      "strokeSharpness": "sharp",
+      "seed": 777638838,
+      "version": 21,
+      "versionNonce": 875218998,
+      "isDeleted": false,
+      "boundElementIds": null
+    }
+  ],
+  "appState": {
+    "gridSize": null,
+    "viewBackgroundColor": "#FFF"
+  }
+}
