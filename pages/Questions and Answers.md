@@ -1,0 +1,27 @@
+- #6_35
+- Is it not better to enjoy the happiness while it comes (with the understanding that it is going to go away)?
+	- not possible practically
+	- mind craves for more
+	- mind keeps looking for different sources of happiness
+	- there is absolutely no good way
+- You mentioned that whatever thought you have is the expression in oneness, from that stand point, if every feeling is expression of oneness, what is the relevance of right and wrong, these dualities?
+	- that requires only until you get to the right/wrong, once you get it, you do only the right
+	- response to the right/wrong?
+		- at relative level if you can correct something which is wrong, then you can do whatever is right
+		- but there are certain things which you cannot do it, just accept it
+		- just dont get affected by it when something is wrong - if you are not the reason for that.. just insuklate youself
+- Internal/external factors - having conducive environment, society is not interested in these things = in the end, we can only insulate and work on the progress??
+	- you may not be able to directly influence, but narrative certainly changes with right leadership
+	- pride in owning up ones one culture and roots
+	- without being fanatic, having healthy respect and pride of who I am, my religion/culture
+	- when environment is not conducive, interests in these matter is more lesser
+	- there is never a perfect world at any point
+	- what we can do?
+		- eventuially we have to create right environment yourself
+		- but external env plays a certain role
+		- upto a certain point, it does have a bearing
+- In Chap 6, in first verse - we should not depend on the result of actions, in 36 - does vairagya also says free from actions
+	- naturally - when we dont crave for the results of the actions, there will be a vairagya
+	- vailragya is at various levels
+	- fundametally, when you are at vairagya level, you get into minimalism, your craving gets limited/reduced..
+-
