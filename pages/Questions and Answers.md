@@ -1,3 +1,19 @@
+- [[May 22nd, 2022]]
+- How can we choose / with past karma?
+- Result of choosing this is clearly a result of past karma
+-
+- What you mean by vairagya - by -- growing beyond emotions
+	- Seeing the uselessness of having those emotions
+- Can emotions have transactional value -
+	- Vedanta is going beyond transactional values
+	- one who don't have- one has to work towards that to get rid of it.. completely subjective
+- Is it not that person does not want that kind of happiness - is he able to enjoy in this lifetime?
+	- Connection with karma - that karma positions you at "right" place
+	- all past karmas are not compeltely destroyed
+	- may not be what you have consciously worked in this lifetime, will produce results in this lifetime
+	- effort spent in this lifetime will also not go wasted- like self knowledge
+-
+-
 - #6_35
 - Is it not better to enjoy the happiness while it comes (with the understanding that it is going to go away)?
 	- not possible practically
