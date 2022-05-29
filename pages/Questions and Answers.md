@@ -1,3 +1,15 @@
+- [[May 29th, 2022]]
+- TM Krishna reference - music for other things than spirituality?
+	- no, carnatic music is primarily for spirituality
+- desireless is tough - how about desire to be a #mumukshu?
+	- only acceptable desire is a desire to be a #mumukshu
+- Dwaita reference regarding divyadesham visits etc.. are they allowed- emotion reference
+	- getting rid of notion that you have bound yourself in something is freedom
+	- dwaita vs advaita - dwaita says bondage is ok
+	- divyadesham etc...
+- being born in right kind of family - we see 2 siblings are totally different even being in exact same environment
+	- that is because of their own karma - past lives
+	-
 - [[May 22nd, 2022]]
 - How can we choose / with past karma?
 - Result of choosing this is clearly a result of past karma
@@ -14,6 +26,7 @@
 	- effort spent in this lifetime will also not go wasted- like self knowledge
 -
 -
+- [[May 15th, 2022]]
 - #6_35
 - Is it not better to enjoy the happiness while it comes (with the understanding that it is going to go away)?
 	- not possible practically
