@@ -87,7 +87,17 @@
  ;; https://github.com/logseq/logseq/blob/master/src/main/frontend/modules/shortcut/config.cljs
  ;; Example:
   :shortcuts
- {:editor/up ["ctrl+k" "up"], :editor/down ["ctrl+j" "down"], :editor/left ["ctrl+h" "left"], :editor/right ["ctrl+l" "right"], :go/search "shift+ctrl+x"}
+ {
+ ;;{:editor/new-block       "enter"
+ ;;  :editor/new-line        "shift+enter"
+ ;;  :editor/insert-link     "mod+shift+k"
+ ;;  :editor/hightlight       false
+ ;;  :ui/toggle-settings     "t s"
+   :editor/up              ["ctrl+k" "up"],
+   :editor/down            ["ctrl+j" "down"],
+   :editor/left            ["ctrl+h" "left"],
+   :editor/right           ["ctrl+l" "right"]
+ }
  ;;:shortcuts {}
 
  ;; By default, pressing `Enter` in the document mode will create a new line.

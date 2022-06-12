@@ -1,56 +1,113 @@
-- [[May 29th, 2022]]
-- TM Krishna reference - music for other things than spirituality?
-	- no, carnatic music is primarily for spirituality
-- desireless is tough - how about desire to be a #mumukshu?
-	- only acceptable desire is a desire to be a #mumukshu
-- Dwaita reference regarding divyadesham visits etc.. are they allowed- emotion reference
-	- getting rid of notion that you have bound yourself in something is freedom
-	- dwaita vs advaita - dwaita says bondage is ok
-	- divyadesham etc...
-- being born in right kind of family - we see 2 siblings are totally different even being in exact same environment
-	- that is because of their own karma - past lives
+- [[Jun 12th, 2022]]
+	- 8fold - completely borrowed from sankya yoga
+	- 3 parts in gita - is similar to famous verse from sankara
+		- no connection here
+	- why chitt is not included here - while it's there in tattwa bodha
+		- here it is at the total level, cannot mean generic
+		- there is no chitt - past experience/knowledge at cosmic level
+		- ^^pls dont connect to other texts^^
+		-
+	- co-relate to yoga sutras - to get perspectives, and classify
+		- pls dont do that - there is no need to get relatives, here it is holistic understanding
 	-
-- [[May 22nd, 2022]]
-- How can we choose / with past karma?
-- Result of choosing this is clearly a result of past karma
 -
-- What you mean by vairagya - by -- growing beyond emotions
-	- Seeing the uselessness of having those emotions
-- Can emotions have transactional value -
-	- Vedanta is going beyond transactional values
-	- one who don't have- one has to work towards that to get rid of it.. completely subjective
-- Is it not that person does not want that kind of happiness - is he able to enjoy in this lifetime?
-	- Connection with karma - that karma positions you at "right" place
-	- all past karmas are not compeltely destroyed
-	- may not be what you have consciously worked in this lifetime, will produce results in this lifetime
-	- effort spent in this lifetime will also not go wasted- like self knowledge
+- [[Jun 5th, 2022]]
+	- tapas vs yogi?
+		- yogi is a person who is enquiring
+	- how to get completely absorbed in bhagwan? continuously
+		- absorbed in you is absorbed in bhagwan
+		- ^^"ME"  --> absolute reality^^
+			- not someone vishnu, siva
+		- know yourself
+		- ``TOOL is ENQUIRY, CONTEMPLATION``
+		-
+	- How do i enquire?
+		- needs external means of knowledge - understand the truth
+		- surrender to the means of knowledge
+		- then get absorbed in the means of knowledge
+		-
+	- Is meditation just to calm the mind ?
+		- yes, truly
+		- its not the end
+		- when mind is calm, it helps you to do self enquiry/contemplation
+		-
+	-
+	- krishna/me as bhagwan
+		- we need to think as us for transactional purposes only
+		- but above than we need to that we are temporary
+	- brahma - attributed to the knowledge of creation/ execution
+		- brahma gives the opportunity to express ourselves (based on karma) and provides environment to produce humans
+		- to exhaust karma
+		- helps to give birth at right time
+		- ishwara is the karma phala dhatta
+		- brahma is the executing officer CEO
+	- physical existence of lokas - are they only in mind
+		- no, definitely not an illusion
+		- just an appearance
+			- moving sparkler, patterns arise
+			- does the patterns exist
+				- temporaily appear as though it is there
+				- its there but not there as well
+				- temporary
+	- these appearances lead to enquiry
+		- yeah, these appearances lead to enquiry
+		- like cinema screen
+		- we take it too seriously
+	- boo loka and brahma loka - suited for enquiry
+	-
+- [[May 29th, 2022]]
+	- TM Krishna reference - music for other things than spirituality?
+		- no, carnatic music is primarily for spirituality
+	- desireless is tough - how about desire to be a #mumukshu?
+		- only acceptable desire is a desire to be a #mumukshu
+	- Dwaita reference regarding divyadesham visits etc.. are they allowed- emotion reference
+		- getting rid of notion that you have bound yourself in something is freedom
+		- dwaita vs advaita - dwaita says bondage is ok
+		- divyadesham etc...
+	- being born in right kind of family - we see 2 siblings are totally different even being in exact same environment
+		- that is because of their own karma - past lives
+		-
+- [[May 22nd, 2022]]
+	- How can we choose / with past karma?
+	- Result of choosing this is clearly a result of past karma
+-
+	- What you mean by vairagya - by -- growing beyond emotions
+		- Seeing the uselessness of having those emotions
+	- Can emotions have transactional value -
+		- Vedanta is going beyond transactional values
+		- one who don't have- one has to work towards that to get rid of it.. completely subjective
+	- Is it not that person does not want that kind of happiness - is he able to enjoy in this lifetime?
+		- Connection with karma - that karma positions you at "right" place
+		- all past karmas are not compeltely destroyed
+		- may not be what you have consciously worked in this lifetime, will produce results in this lifetime
+		- effort spent in this lifetime will also not go wasted- like self knowledge
 -
 -
 - [[May 15th, 2022]]
-- #6_35
-- Is it not better to enjoy the happiness while it comes (with the understanding that it is going to go away)?
-	- not possible practically
-	- mind craves for more
-	- mind keeps looking for different sources of happiness
-	- there is absolutely no good way
-- You mentioned that whatever thought you have is the expression in oneness, from that stand point, if every feeling is expression of oneness, what is the relevance of right and wrong, these dualities?
-	- that requires only until you get to the right/wrong, once you get it, you do only the right
-	- response to the right/wrong?
-		- at relative level if you can correct something which is wrong, then you can do whatever is right
-		- but there are certain things which you cannot do it, just accept it
-		- just dont get affected by it when something is wrong - if you are not the reason for that.. just insuklate youself
-- Internal/external factors - having conducive environment, society is not interested in these things = in the end, we can only insulate and work on the progress??
-	- you may not be able to directly influence, but narrative certainly changes with right leadership
-	- pride in owning up ones one culture and roots
-	- without being fanatic, having healthy respect and pride of who I am, my religion/culture
-	- when environment is not conducive, interests in these matter is more lesser
-	- there is never a perfect world at any point
-	- what we can do?
-		- eventuially we have to create right environment yourself
-		- but external env plays a certain role
-		- upto a certain point, it does have a bearing
-- In Chap 6, in first verse - we should not depend on the result of actions, in 36 - does vairagya also says free from actions
-	- naturally - when we dont crave for the results of the actions, there will be a vairagya
-	- vailragya is at various levels
-	- fundametally, when you are at vairagya level, you get into minimalism, your craving gets limited/reduced..
+	- #6_35
+	- Is it not better to enjoy the happiness while it comes (with the understanding that it is going to go away)?
+		- not possible practically
+		- mind craves for more
+		- mind keeps looking for different sources of happiness
+		- there is absolutely no good way
+	- You mentioned that whatever thought you have is the expression in oneness, from that stand point, if every feeling is expression of oneness, what is the relevance of right and wrong, these dualities?
+		- that requires only until you get to the right/wrong, once you get it, you do only the right
+		- response to the right/wrong?
+			- at relative level if you can correct something which is wrong, then you can do whatever is right
+			- but there are certain things which you cannot do it, just accept it
+			- just dont get affected by it when something is wrong - if you are not the reason for that.. just insuklate youself
+	- Internal/external factors - having conducive environment, society is not interested in these things = in the end, we can only insulate and work on the progress??
+		- you may not be able to directly influence, but narrative certainly changes with right leadership
+		- pride in owning up ones one culture and roots
+		- without being fanatic, having healthy respect and pride of who I am, my religion/culture
+		- when environment is not conducive, interests in these matter is more lesser
+		- there is never a perfect world at any point
+		- what we can do?
+			- eventuially we have to create right environment yourself
+			- but external env plays a certain role
+			- upto a certain point, it does have a bearing
+	- In Chap 6, in first verse - we should not depend on the result of actions, in 36 - does vairagya also says free from actions
+		- naturally - when we dont crave for the results of the actions, there will be a vairagya
+		- vailragya is at various levels
+		- fundametally, when you are at vairagya level, you get into minimalism, your craving gets limited/reduced..
 -
