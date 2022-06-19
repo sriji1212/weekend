@@ -5,5 +5,12 @@
   bbb = aaa.replaceAll("\n\n", "_")
   setTimeout(async()=>console.log(
        await window.navigator.clipboard.writeText(bbb)), 3000)
+       
+       
+       
+  aaa = "_ " + document.getElementsByClassName("view-content")[0].innerText + "_ "
+  aaa = aaa + "   _" + document.getElementsByClassName("attachment attachment-after")[0].innerText + "_"
+  setTimeout(async()=>console.log(
+       await window.navigator.clipboard.writeText(bbb)), 3000)
   ```
 -

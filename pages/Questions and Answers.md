@@ -1,3 +1,36 @@
+- [[Jun 19th, 2022]]
+- pralayas - somewhere it is referred as "chaos"?
+	- no -- it is not. only in the sense of resolution,
+	- storm, -- like destruction
+- sankya - 24 component - is it based on duality?
+	- yes, absolutely - that is why we do not agree with their understanding
+	- we use it for understanding the model, not for understanding
+	- sankya is elaboritaely discussed and **dismissed**
+- imperior/ superior reality
+	- superior is from absolute reality
+	- in terms of creations nimitha karnakas
+	- he is not talking himself as ishwara
+	- from absolution reality, ishwara also does not exist
+- 4th - cosmic/ manas - is individual ahankara
+	- no, its not individual ahankara
+- creation is not there, does that mean everyone is liberated
+	- creation is cyclic
+	- liberation is only individual
+	- everyone getting liberated is hypothetical
+	- here we are primarily for our own moksha
+- unmanifest part of creation
+	- the period before it manifested
+	- tangibly we cannot look at the manifest
+	- infer the unmanifest from the manifest
+	- manifested means access to cognition, senses
+	-
+- dissolve
+	- giving up ignorance is the only idea
+	- I exist as an individual, I am assumed
+	- knowledge is getting rid of this notion
+	-
+-
+-
 - [[Jun 12th, 2022]]
 	- 8fold - completely borrowed from sankya yoga
 	- 3 parts in gita - is similar to famous verse from sankara
