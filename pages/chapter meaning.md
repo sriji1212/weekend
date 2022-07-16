@@ -1,0 +1,2 @@
+- chapter 2-6 - self enquiry
+- chapter 7-12 - enquiry about bhagwan - ishwara details.. superior form details etc..
