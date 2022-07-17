@@ -143,4 +143,25 @@
 		- naturally - when we dont crave for the results of the actions, there will be a vairagya
 		- vailragya is at various levels
 		- fundametally, when you are at vairagya level, you get into minimalism, your craving gets limited/reduced..
+- [[Jul 17th, 2022]] #7_19
+- jnani who has gained me is me
+- prabhabti is moksha - jeevan mukthi
+- does god provide results or bhakti provide results
+	- shraddha provides results
+	- _forms_ are imaginery
+	-
+- does bhagwan has infinite knowledge, what parabrahman - becomes bhagwan
+	- no difference
+	- you cannot deny the existence of universal power
+	- if everything is consciousness, then bhagwan can be dismissed (in absolute context, tough for us)
+- ..
+	- manifestations
+	- sparklers - once finished- create patterns in space.. they last only for a moment
+	- creations are as good as the time of that pattern (time)
+	- creation is also dependent reality
+	- don't dismiss creation, cognitively understand that it exists
+	- all the intelligence has to be someone
+	- it could not have happened automatically
+	- that conscious being is called ishwara or bhagwan
+	- its tricky but we need to cognitively understand
 -
