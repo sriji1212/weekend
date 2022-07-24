@@ -164,4 +164,15 @@
 	- it could not have happened automatically
 	- that conscious being is called ishwara or bhagwan
 	- its tricky but we need to cognitively understand
--
+- [[Jul 24th, 2022]]
+- 4 steps - attraction, struggle, aversion,  --> do you need to go through all?
+	- If you are not averse, the lingering taste of desire is always there.
+	- Mind tricks you always in week moment convincing you that there is pleasure in fulfilling that desire
+	- once you are averse (towards the attraction)
+	- this is a longdrawn process as well = may nto happen immediately as well
+	- THIS IS WHAT SELF ENQUIRY ALSO
+	- once you know yourself more and more, then it becomes increasingly easier
+	- then you are feel the relief of not being attracted by something
+	- only motivation to
+	- feel free to pray - if you can accept any outcome - be indifferent - you can still be jignasu
+	-
