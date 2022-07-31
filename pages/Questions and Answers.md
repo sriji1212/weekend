@@ -1,3 +1,59 @@
+- [[Jul 31st, 2022]]
+	- jada bharata story?
+		- he got attached to dee and at the time of death he was thinking what will happen to deer - next birth
+		- at time of death, remembering at the time of death
+		- thought at the time of death decides where you will be born in the next life after death
+	- without desires, won't it be dry or boring
+		- NO, a BIG NO..
+		- BIG RELIEF when you give you desires
+		- life being pulled by desires is helpless life
+		- only you will know once we stop the desires
+		- jeevan mukthi - big relief
+			- you can enjoy life with this life
+			- experiences also will be far more meaningful and enjoyable
+	- creating healthy aversion to desires - how to do that?
+		- by thinking about the consequences about what you will undergo by fulfilling that desire
+		- you have to work to get the desire - putting yourself willingly to difficulty
+		- knowing happiness is within and not outside, then you will get aversion
+		- even for basic biological urge - the desire is itself is in the mind
+		- after fulflling any desire you need to clean yourself
+		- only mind has created attraction for that - adhyanam
+		- simple aversion is also suppression
+		- health aversion is by knowing fully and not be dependent on pleasure to be happy - that is healthy aversion
+	-
+	-
+- [[Jul 24th, 2022]]
+- 4 steps - attraction, struggle, aversion,  --> do you need to go through all?
+	- If you are not averse, the lingering taste of desire is always there.
+	- Mind tricks you always in week moment convincing you that there is pleasure in fulfilling that desire
+	- once you are averse (towards the attraction)
+	- this is a longdrawn process as well = may nto happen immediately as well
+	- THIS IS WHAT SELF ENQUIRY ALSO
+	- once you know yourself more and more, then it becomes increasingly easier
+	- then you are feel the relief of not being attracted by something
+	- only motivation to
+	- feel free to pray - if you can accept any outcome - be indifferent - you can still be jignasu
+- [[Jul 17th, 2022]] #7_19
+- jnani who has gained me is me
+- prabhabti is moksha - jeevan mukthi
+- does god provide results or bhakti provide results
+	- shraddha provides results
+	- *forms* are imaginery
+	-
+- does bhagwan has infinite knowledge, what parabrahman - becomes bhagwan
+	- no difference
+	- you cannot deny the existence of universal power
+	- if everything is consciousness, then bhagwan can be dismissed (in absolute context, tough for us)
+- ..
+	- manifestations
+	- sparklers - once finished- create patterns in space.. they last only for a moment
+	- creations are as good as the time of that pattern (time)
+	- creation is also dependent reality
+	- don't dismiss creation, cognitively understand that it exists
+	- all the intelligence has to be someone
+	- it could not have happened automatically
+	- that conscious being is called ishwara or bhagwan
+	- its tricky but we need to cognitively understand
 - [[Jun 19th, 2022]]
 - pralayas - somewhere it is referred as "chaos"?
 	- no -- it is not. only in the sense of resolution,
@@ -143,36 +199,4 @@
 		- naturally - when we dont crave for the results of the actions, there will be a vairagya
 		- vailragya is at various levels
 		- fundametally, when you are at vairagya level, you get into minimalism, your craving gets limited/reduced..
-- [[Jul 17th, 2022]] #7_19
-- jnani who has gained me is me
-- prabhabti is moksha - jeevan mukthi
-- does god provide results or bhakti provide results
-	- shraddha provides results
-	- _forms_ are imaginery
-	-
-- does bhagwan has infinite knowledge, what parabrahman - becomes bhagwan
-	- no difference
-	- you cannot deny the existence of universal power
-	- if everything is consciousness, then bhagwan can be dismissed (in absolute context, tough for us)
-- ..
-	- manifestations
-	- sparklers - once finished- create patterns in space.. they last only for a moment
-	- creations are as good as the time of that pattern (time)
-	- creation is also dependent reality
-	- don't dismiss creation, cognitively understand that it exists
-	- all the intelligence has to be someone
-	- it could not have happened automatically
-	- that conscious being is called ishwara or bhagwan
-	- its tricky but we need to cognitively understand
-- [[Jul 24th, 2022]]
-- 4 steps - attraction, struggle, aversion,  --> do you need to go through all?
-	- If you are not averse, the lingering taste of desire is always there.
-	- Mind tricks you always in week moment convincing you that there is pleasure in fulfilling that desire
-	- once you are averse (towards the attraction)
-	- this is a longdrawn process as well = may nto happen immediately as well
-	- THIS IS WHAT SELF ENQUIRY ALSO
-	- once you know yourself more and more, then it becomes increasingly easier
-	- then you are feel the relief of not being attracted by something
-	- only motivation to
-	- feel free to pray - if you can accept any outcome - be indifferent - you can still be jignasu
-	-
+-
