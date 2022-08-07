@@ -1,3 +1,12 @@
+- [[Aug 7th, 2022]]
+	- every moment we think - at time of death - is it already decided?
+		- whatever uppermost thought in the mind plays a big role
+		- also baggage of various karma
+		- ..
+	- ..
+		- ..
+		- ..
+	- ..
 - [[Jul 31st, 2022]]
 	- jada bharata story?
 		- he got attached to dee and at the time of death he was thinking what will happen to deer - next birth
