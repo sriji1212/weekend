@@ -1,3 +1,12 @@
+- [[Aug 21st, 2022]]
+	- which continues to grow -is not really vegetarian
+		- mushroom, does sprouts also qualify here?
+		- not sure
+	- compare into next big thing - next - how to cut out the betterment thought?
+		- dont look for perfection
+		- make your mind understand, you can never get perfection from outside
+		- pointless when we seek perfection which does not exist
+		- body is imperfect - real love is only for the real self
 - [[Aug 7th, 2022]]
 	- every moment we think - at time of death - is it already decided?
 		- whatever uppermost thought in the mind plays a big role
