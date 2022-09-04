@@ -1,3 +1,24 @@
+- [[Sep 4th, 2022]]
+	- Jeevan Muktihi vs Krama Mukti?
+		- If still have karma left, you will go to other lokas or again to LIFE (most likely for MANY)
+		- If you have completely DISCONNECTED with karma, you complete rt. here - it in Jeevan Mukti
+		-
+	-
+- [[Aug 28th, 2022]]
+	- distinction beyond all ignorance -
+		- regular knowledge - all maya from absolute sense is all ignorance
+	- 2 words - mano nasha and mano laya - ramana maharishi
+		- mano nasha - from the stand point of vedanta, we are not working for destroying the mind
+		- if you destroy the mind, how will you listen
+		- knowledge can be gained only by sravanam
+		- so mind is defintely needed
+		- so mano nasha - is not getting rid of all thoughts - only getting rid of bad/unwanted
+		- [yoga commentary]( ![Yoga Sudhakaraha UL.pdf](../assets/Yoga_Sudhakaraha_UL_1661654330705_0.pdf) )
+		-
+	- gnani who attained jeevan mukti - does he still have thoughts
+		- YES
+	- meditation techniques?
+		-
 - [[Aug 21st, 2022]]
 	- which continues to grow -is not really vegetarian
 		- mushroom, does sprouts also qualify here?
