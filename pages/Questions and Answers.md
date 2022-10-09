@@ -1,3 +1,29 @@
+- [[Oct 9th, 2022]]
+	- When the creation ends and starts again, no karma balance was there...  then how we were originally created?
+		- we were there since time immemorial, and for some reason sastra does not say anything on this
+		- we don't answer this question
+	- Or why start the universe or LIFE itself?
+		- this IGNORANCE is continuing from time inmemorial
+	- when this IGNORANCE start?
+	- right question is to how to get rid of the Ignorance? this is more productive
+	- Brahmaji - is person like you and me?
+		- Definitely NOT - capabilities are too many
+		- hiranyagarba - one who manifested in the form of subtle universe
+	- ...
+		- appearance does not get negated,
+		- maya is just an appearance
+		- maya is not delusional
+	- reaching ME? what does that signify
+		- knowing ME - just the knowledge of ME, the absolute reality
+	- with knowledge, suffering will go away?
+		- Yes, if EGO is rendered irrelevant - then there is no suffering.. 'I' is no more
+	- Pain Vs Suffering
+		- Pain -> w.r.to some past karma
+		- Suffering -> You have choice if you want to suffer or not in the future
+		- Both pain and suffering are unavoidable in our lifetime
+		- ^^when a person knows about the absolute reality, with the knowledge, even if PAIN is there in the body, you will not choose to suffer.^^
+	-
+	-
 - [[Sep 4th, 2022]]
 	- Jeevan Muktihi vs Krama Mukti?
 		- If still have karma left, you will go to other lokas or again to LIFE (most likely for MANY)
